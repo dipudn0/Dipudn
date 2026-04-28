@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Development, Graphic Design, and Digital Solutions  
 - 🌱 I’m currently learning Advanced WordPress, WooCommerce & Modern Web Technologies  
 - 💞️ I’m looking to collaborate on Web Design, WordPress Projects & Creative Graphic Work  
-- 📫 How to reach me: (আপনার Email / LinkedIn / Facebook link এখানে দিন)  
+- 📫 How to reach me: dndipu001@gmail.com
 - 😄 Pronouns: He/Him  
 - ⚡ Fun fact: I love turning simple ideas into creative digital products 🚀  
 
